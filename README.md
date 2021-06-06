@@ -1,4 +1,4 @@
-Message to EVRERYONE
+Message to EVRERYONE:
 This is Virus NoEscape.exe
 Open it and
 Try your computer for the last time!

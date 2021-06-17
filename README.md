@@ -1,10 +1,10 @@
-Message to EVRERYONE:
-This is Virus NoEscape.exe
-Open it and
-Try your computer for the last time!
-Youtube: https://www.youtube.com/channel/UC-bZQEYXQjoPrgRV7Qxa0Ww
-Password NoEscape.zip:mysubsarethebest
-Oxygen_U and Vega X is Roblox Exploit Excutor 
-Thanks for Download and Use it!
-Follow me in Roblox: https://www.roblox.com/users/1623498603/profile
-Made by BobucXMan
+New UPDATE in ROBLOX :
+JJSploit Executor 
+KRNLWRD Executor 
+Vega X Executor
+Oxygen_U Excutor
+Roblox Script Text File(.txt)
+Follow me on ROBLOX: https://www.roblox.com/users/1623498603/profile
+Subscribe my Youtube Channel: https://www.youtube.com/channel/UC-bZQEYXQjoPrgRV7Qxa0Ww
+Thanks for visiting my GITHUB !
+Made by BobucXMan 
